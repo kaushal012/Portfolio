@@ -1,10 +1,10 @@
 # Kaushal Narayan Budanur
 
-##LinkedIN 
+## LinkedIN 
 https://www.linkedin.com/in/kaushal-budanur-a1292516b/
 
-##Contact Number
+## Contact Number
 +1(984)837-0336
 
-##Email ID
+## Email ID
 knbudanu@ncsu.edu
